@@ -1,0 +1,12 @@
+!
+almdncjadasd
+s/d
+/sa
+d/as
+/a
+ad
+f
+adfdfa/f
+fda
+fad
+/
